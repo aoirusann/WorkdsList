@@ -9,6 +9,7 @@
 ## 短篇小黄文
 * [小真希的秘密诀窍](https://xxsy.vip/forum.php?mod=viewthread&tid=42267&extra=)
 * [蓝蓝的爱献给了谁？](https://xxsy.vip/forum.php?mod=viewthread&tid=44428&extra=)
+* [我的爱马·穆](https://www.xxsy.vip/forum.php?mod=viewthread&tid=46208)
 
 ## 长篇连载随记
 * [我和她虚度的光阴](https://xxsy.vip/forum.php?mod=viewthread&tid=44230&extra=)
